@@ -6,3 +6,11 @@ ZUR PERSON BEARBEITEN
 Claudia Tiedemann wurde als Tochter des Polizisten Egon Tiedemann und dessen Frau Doris in Winden geboren. Sie wächst in der Kleinstadt auf und kehrt nach einem Studium in ihre Heimatstadt zurück. Claudia hat eine Tochter, Regina, deren Vater allerdings unbekannt ist.
 
 Claudias Augen zeichnen sich durch eine angeborene Iris-Heterochromie aus.
+
+## Familie 
+
+* Egon Tiedemann
+* Doris Tiedemann
+* Regina Tiedemann
+* Boris Niewald
+* Bartosz Tiedemann
