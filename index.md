@@ -17,4 +17,4 @@ Claudias Augen zeichnen sich durch eine angeborene Iris-Heterochromie aus.
 
 Claudia Tiedemann's Zitat: 
 
-> "Du wirst Opfer bringen müssen. Alles wird geschehen, so wie alles geschehen ist. Und wenn alles gelingt, dann wird sie leben, Regina."
+> Du wirst Opfer bringen müssen. Alles wird geschehen, so wie alles geschehen ist. Und wenn alles gelingt, dann wird sie leben, Regina.
